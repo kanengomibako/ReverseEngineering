@@ -1,5 +1,5 @@
-VEMURAM Karen
-
-ブログ記事→https://drugscore.blog.fc2.com/blog-entry-326.html
-
+VEMURAM Karen
+
+ブログ記事→https://kanengomibako.github.io/pages/00326.html
+
 VEMURAM Karenの解析データです。

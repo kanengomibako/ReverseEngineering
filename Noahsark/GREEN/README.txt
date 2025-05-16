@@ -1,5 +1,5 @@
-Noah'sark GREEN
-
-ブログ記事→https://drugscore.blog.fc2.com/blog-entry-321.html
-
+Noah'sark GREEN
+
+ブログ記事→https://kanengomibako.github.io/pages/00321.html
+
 Noah'sark GREENの解析データです。

@@ -1,5 +1,5 @@
-Fender Hammertone Overdrive
-
-ブログ記事→https://drugscore.blog.fc2.com/blog-entry-325.html
-
+Fender Hammertone Overdrive
+
+ブログ記事→https://kanengomibako.github.io/pages/00325.html
+
 Fender Hammertone Overdriveの解析データです。
